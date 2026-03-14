@@ -1,0 +1,1 @@
+# artinormeeasli.id
